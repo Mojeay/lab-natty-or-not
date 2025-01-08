@@ -1,4 +1,4 @@
-# Por que você deveria ter um canal no YouTube? ;)
+# Por que você deveria ter um canal no YouTube?
 
 ## 📒 Descrição
 E-book de 8 páginas que apresenta as possibilidades que um canal do youtube pode proporcionar.
